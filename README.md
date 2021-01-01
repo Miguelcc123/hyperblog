@@ -11,3 +11,4 @@ Veremos lo siguiente:
 * aoeuaoeuao
 * aoeuaoeuaoeu
 * Creado por el increible Miguel Calle Contreras
+* Incluye una leccion como domar WHORES
