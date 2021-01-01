@@ -12,4 +12,4 @@ Veremos lo siguiente:
 * aoeuaoeuaoeu
 * Creado por el increible Miguel Calle Contreras
 * Incluye una leccion como domar WHORES
-* Disponible in nhentai.com 1
+* Disponible in nhentai.com 123
